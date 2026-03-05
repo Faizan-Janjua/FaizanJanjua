@@ -20,6 +20,7 @@ My goal is to help businesses improve their **online visibility** and **rank hig
 * 🌐 Website: https://faizanjanjua.wordpress.com
 * 📝 Blog: https://faizanjanjua.blogspot.com
 * 👤 About Me: https://about.me/faizanjanjua
+* https://faizanjanjua.wordpress.com/faizan-janjua-digital-profile
 
 ---
 
